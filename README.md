@@ -1,1 +1,1 @@
-All sport events that participated since 2021.
+All sporting events participated in since 2021.
